@@ -1,1 +1,0 @@
-# VEXO_clothing
